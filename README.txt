@@ -1,0 +1,1 @@
+Hi this tool is from STRT.This is very powerful phishing tool.So please use for only educational purpose.Any misuse of this tool , if known , can land you in jail. Thank You 
